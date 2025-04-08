@@ -1,1 +1,1 @@
-Welcome to Madlift project. w😭We just crazy 😭🤪
+Welcome to Madlift project. We just crazy 😭🤪
